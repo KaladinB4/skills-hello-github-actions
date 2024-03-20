@@ -41,6 +41,13 @@ Here's a recap of all the tasks you've accomplished in your repository:
 - To find projects to contribute to, check out [GitHub Explore](https://github.com/explore).
 
 <footer>
+:smile🥇
+😄
+😸
+😸
+😸
+
+😸
 
 <!--
   <<< Author notes: Footer >>>
